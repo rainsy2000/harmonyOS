@@ -1,2 +1,2 @@
 # harmonyOS
-卖狗肉，等羊头
+Updating... Coming soon.
